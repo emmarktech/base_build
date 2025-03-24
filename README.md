@@ -1,8 +1,6 @@
 ## FLOW
 
-Enquiry TG: https://t.me/demlinks
-
-TG Community: https://t.me/demlinkschannel
+Enquiry TG: https://t.me/emmarktech
 
 Discord Community: https://discord.gg/UEmCAbhz9W
 
